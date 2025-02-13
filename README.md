@@ -1,0 +1,2 @@
+# Walkingexample
+walks in Cork
